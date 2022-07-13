@@ -2,6 +2,5 @@
 
 ## I'm junior iOS dev 💻 📱
 
- 🦹🏻‍♀️ I’m friky, i ❤️‍🔥 fantasy worlds.
+ 🦹🏻‍♀️  I’m friky & ❤️‍🔥 fantasy worlds.
 
--->
